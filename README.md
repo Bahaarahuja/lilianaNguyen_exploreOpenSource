@@ -8,3 +8,4 @@ My response to the prompt is below:
 1. Take accountability (release statement to users)
 2. Design a new version of the app with inclusive photos
 3. Could also make a diverse team
+4. She needs to be more sensitive about this topic and include people of different cultural backgrounds
